@@ -1,7 +1,7 @@
 ---
 title: "Preventieakkoorden of zorgakkoorden?"
 layout: post
-date: 2026-09-04 19:00
+date: 2026-11-04 19:00
 image: /assets/images/markdown.jpg
 headerImage: false
 tag: 
