@@ -41,10 +41,13 @@ Kortom: Het maakt niet uit dat het gaat om een journalistiek artikel, het gaat e
 Vervolgens kijkt de rechtbank naar de artikelen om te beoordelen of er sprake was van reclame. 
 Het artikel uit de Flair ziet de rechtbank als een "nagenoeg ééndimensionale weergave van de positieve effecten van Ozempic". 
 Een aantal passages in het artikel zijn hiervoor doorslaggevend: 
-> In week 1 raakte ik al 3 kilo kwijt
-> Wondermiddel: Zij vielen snel -en flink- af met Ozempic
-> Voor mij is het een WONDERMIDDEL
-> na dertig jaar lijnen kwam dit medicijn als een geschenk uit de hemel
+> "In week 1 raakte ik al 3 kilo kwijt"
+> 
+> "Wondermiddel: Zij vielen snel -en flink- af met Ozempic"
+> 
+> "Voor mij is het een WONDERMIDDEL"
+> 
+> "na dertig jaar lijnen kwam dit medicijn als een geschenk uit de hemel"
 
 Het artikel gaat wel kort in op het feit dat het middel geen indicatie heeft, en dat een gebruiker last had bijwerkingen, maar dat is niet voldoende geweest om het een "zuiver informatief" artikel te maken. 
 De boete was dus terecht. 
