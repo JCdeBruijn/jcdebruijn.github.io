@@ -1,5 +1,5 @@
 ---
-title: "Code rood in Nederland: NIPV analyse"
+title: "Code rood voor hitte voor de eerste keer in Nederland"
 layout: post
 date: 2026-08-04 19:00
 image: /assets/images/code-rood.jpg
