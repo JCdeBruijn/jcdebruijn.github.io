@@ -1,7 +1,7 @@
 ---
 title: "Media beboet voor maken van reclame voor afslankmedicatie"
 layout: post
-date: 2026-08-23 19:00
+date: 2026-08-23 14:00
 image: /assets/images/logo-IGJ.png
 headerImage: true
 tag: 
