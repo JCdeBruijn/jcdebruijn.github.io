@@ -51,7 +51,7 @@ Een aantal passages in het artikel zijn hiervoor doorslaggevend:
 
 Het artikel gaat wel kort in op het feit dat het middel geen indicatie heeft, en dat een gebruiker last had bijwerkingen, maar dat is niet voldoende geweest om het een "zuiver informatief" artikel te maken. 
 De boete was dus terecht. 
-Uit de bijlagen van het vonnis blijkt dat de IGJ een boete van 150.000 euro had kunnen opleggen, maar er is een korting van 80% gegeven na het meewegen van meningsuiting en de persvrijheid van de journalistieke media. 
+Uit de bijlagen van het vonnis blijkt dat de IGJ een boete van 150.000 euro had kunnen opleggen, maar er is een korting van 80% gegeven na het meewegen van de vrijheid van meningsuiting en de persvrijheid van de journalistieke media. 
 
 ## Ernstige gevolgen voor de volksgezondheid
 De Europese richtlijn en de Geneesmiddelenwet zijn streng, omdat verkeerd of overmatig gebruik van geneesmiddelen ernstige gevolgen voor de volksgezondheid kan geven. 
