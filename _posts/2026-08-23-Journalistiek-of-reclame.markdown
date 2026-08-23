@@ -12,7 +12,6 @@ star: false
 category: blog
 author: joost
 description: Is het journalistiek of reclame?  
-hidden: false
 ---
 
 ## Boetes van de IGJ
