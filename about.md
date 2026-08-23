@@ -11,8 +11,6 @@ Mijn achtergrond ligt in de Biomedische Wetenschappen (Biomedical Sciences) & Fi
 
 In mijn werk richt ik me op preventie, het gezond inrichten van de leefomgeving en het duiden van (mogelijke) gezondheidsrisico's van externe factoren. Ik vertaal wetenschappelijke kennis naar bruikbaar advies en concrete handelingsperspectieven voor gemeenten, instellingen, professionals en burgers.
 
-## Mijn aanpak
-
 Gezondheid staat nooit op zichzelf: ze wordt beïnvloed door de omgeving waarin mensen wonen, werken en leven. Daarom combineer ik in mijn advies:
 
 - **Wetenschappelijke onderbouwing**: Adviezen op basis van actuele kennis en onderzoek. 
