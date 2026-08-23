@@ -61,7 +61,7 @@ Als half Nederland off-label aan de afslankmedicatie gaat zijn er best wel wat n
 * Diabetespatiënten krijgen te maken met tekorten aan medicatie, waardoor ze meer gezondheidsrisico's lopen. 
 
 ## Medicatie lijdt af van het grotere probleem 
-Het is goed dat de IGJ met deze boetes hiermee een tegengeluid geeft in het maatschappelijk debat over afslankmedicatie, want op dit moment voeren de farmaceuten en de snelle oplossingen de boventoon. 
+Het is goed dat de IGJ met deze boetes een tegengeluid geeft in het maatschappelijk debat over afslankmedicatie, want op dit moment voeren de farmaceuten en de snelle oplossingen de boventoon. 
 Aandacht voor collectieve preventie, voedselomgeving, beweegomgeving en andere structuren die onze collectieve ongezonde leefstijl en ongezonde leefomgeving in stand houden is er nauwelijks. 
 Of als die er wel is, dan gaat het over hoe moeilijk, ingewikkeld of betuttelend preventieve maatregelen zijn. 
 
